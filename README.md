@@ -1,4 +1,4 @@
 # Readme
 
-Hey Bro! This is readme
+Hey bhai! This is readme
 Hahahahahha
